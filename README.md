@@ -1,1 +1,1 @@
-Document Blanc en cours, et document rose et résumé finit.
+Document Blanc en cours, document rose et résumé finit.
